@@ -35,4 +35,6 @@ control policy.
 
 Mohammed Fazlian
 Cybersecurity Enthusiast
-[LinkedIn] | [Email]
+- Mail: mdfazlian30@gmail.com
+- Linkedin: www.linkedin.com/in/mohammed-fazlian-86459b197
+
